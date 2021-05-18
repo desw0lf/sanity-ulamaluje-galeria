@@ -1,0 +1,1 @@
+# sanity-ulamaluje-galeria-web
